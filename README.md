@@ -2,8 +2,6 @@
 
 🌱 I’m currently learning Machine learning, Gen AI, MLOPS
 
-📫 How to reach me at my email venkatesh.gtd@gmail.com / 
-
 🚀 An enthusiastic and passionate coder with a knack for all things AI and Generative AI! I'm always excited to explore new frontiers in the world of technology and innovation.
 
 💞️ I’m looking to collaborate on any idea to work on may be we are gonna build a billon dollar company in future
