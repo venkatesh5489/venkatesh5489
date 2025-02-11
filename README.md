@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on any idea to work on may be we are gonna build a billon dollar company in future
 
-📫 How to reach me at my email venkatesh.gtd@gmail.com /
+📫 How to reach me at my email venkatesh.gtd1@gmail.com /
 
 💡 From building intelligent systems to creating cutting-edge generative models, I thrive on turning complex problems into elegant solutions. My journey is driven by curiosity, creativity, and a relentless desire to push the boundaries of what's possible with AI.
 
